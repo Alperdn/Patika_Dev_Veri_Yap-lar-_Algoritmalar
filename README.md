@@ -1,0 +1,1 @@
+# Patika_Dev_Veri_Yap-lar-_Algoritmalar
